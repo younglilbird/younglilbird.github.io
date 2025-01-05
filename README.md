@@ -1,1 +1,1 @@
-Yulong Liang's [Resume](Yulong_Resume_MSCSE_Final_2.pdf) and [Personal Website](https://younglilbird.github.io/)
+Yulong Liang's [Resume](Yulong_Resume_Product_Upddate.pdf) and [Personal Website](https://younglilbird.github.io/)
